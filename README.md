@@ -18,11 +18,10 @@
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
 
 
-«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 
 ![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)
 
-" Call us ${\textsf{\color{#667422}Vemödalan/Vemö}}$ <img src="https://i.ibb.co/mCSQ5g5q/emo2.gif" alt="emo2" border="0"> **`///`** ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** Grace <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀
+" Call us ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** Grace <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#61109c}About me}}$ ღ </summary> <a href="https://pluralpedia.org/w/Traumagenic"><code>Traumagenic</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Atrium_System"><code>Atrium</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Kingenic"><code>Kingenic</code></a> <i>system of 200+ alters!!</i> <br><strong>Yes ik an endo AND trauma origin?! Don't believe me? Go ahead and ask. I'll dump ALL my trauma :)</strong> <br> <i>20+ with a child! Ive also been in regis since 2018/2016! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0"></i>ㅤ<br> <strong><code>BPD/NPD/<a href="https://my.clevelandclinic.org/health/diseases/9743-histrionic-personality-disorder">HPD</a>/ADHD</code></strong> <ins><strong><s>||</s></strong></ins> <code>Dyslexia/Autism/Schizophrenia</code> <br> <strong><code><a href="https://en.wikipedia.org/wiki/Periodic_paralysis">Periodic paralasys</a><strong>/</strong><a href="https://www.ucsfhealth.org/conditions/mild-cognitive-impairment">MCI</a></strong></code> <br> </details>
@@ -39,7 +38,6 @@
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#360459}Education / My Sites}}$ ღ </summary> <a href="https://thesinsofyourfleshmayburnyou.carrd.co"><i>carrd</i></a> <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> <a href="https://rentry.co/AMERlCANlDlOT"><i>rentry</i></a> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> <a href="https://taste-of-flesh.straw.page"><i>strawpage</i></a> <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> <a href="https://cannibalisticmindset.atabook.org"><i>atabook</i></a> <br> <a href="https://proshipresourcesaccessible.carrd.co/#"><strong><code>Proship Info</code></strong></a> <ins><strong><s>///</s></strong></ins> <a href="https://define-proship.carrd.co/"><strong><code>Proship Info 2</code></strong></a> <br> <a href="https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/"><strong><code>Endo Info</code></strong></a> <ins><strong><s>///</s></strong></ins> <a href="https://endoresource.carrd.co/"><strong><code>Endo Info 2</code></strong></a> <br> <a href="https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf"><strong><code>Para Info</code></strong></a> <br> </details>
 
-![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://files.catbox.moe/xmti1d.gif)
 
 <p align="left">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31fockiwoiev3nx7s3kkxbw3pj4i&redirect=true">
@@ -47,7 +45,7 @@
    </a>
 </p>
 
-«« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
+![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://files.catbox.moe/xmti1d.gif)
 
 <br> <img width="400" height="40" alt="tumblr_b1e17db0c2fabc65768972ab36b0618d_e24f1fb9_400-ezgif com-crop" src="https://github.com/user-attachments/assets/d849e6eb-5762-4290-b01c-4663a337ad4c" /> </br>
 
