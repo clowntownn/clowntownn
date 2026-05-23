@@ -2,6 +2,7 @@
 
 
 
+
 **heading graphic from @chuusarahabaki on tumblr**
 
 <img src="https://i.ibb.co/nqMPJB7m/hazard-hazard-tape.gif" alt="hazard-hazard-tape" border="0">
@@ -48,11 +49,11 @@
 
 «« <ins>~~**·═════════════·**~~</ins> <img src="https://i.ibb.co/7NGzXLZk/disc.gif" alt="disc" border="0"> <ins>~~**·═════════════·**~~</ins> »»
 
-<br> <img width="400" height="40" alt="tumblr_959a5239813b7e1e69e12ae862a88a1c_1bf0bd17_400" src="https://github.com/user-attachments/assets/ed9623e5-57d5-46d6-bc8d-df3784bdb2c6" /> </br>
+<br> <img width="400" height="40" alt="tumblr_b1e17db0c2fabc65768972ab36b0618d_e24f1fb9_400-ezgif com-crop" src="https://github.com/user-attachments/assets/d849e6eb-5762-4290-b01c-4663a337ad4c" /> </br>
 
-![heels-ezgif com-resize](https://github.com/user-attachments/assets/42bb2195-108d-4da5-8faf-1532aaca9d15)
+<img width="399" height="129" alt="ezgif com-crop" src="https://github.com/user-attachments/assets/6864b73e-36b0-45a9-90b7-bdc9835d3df0" />
 
-<img width="400" height="40" alt="tumblr_55e804b719ef63b6a6a9eed7a337168d_138bec3a_400" src="https://github.com/user-attachments/assets/dc4bd2c8-4892-4117-b95a-662b760d544f" />
+<br> <img width="400" height="40" alt="tumblr_203f9d1cd174538f28a0285d090d9145_4c365c55_400-ezgif com-crop" src="https://github.com/user-attachments/assets/13e0a20b-7de3-4b59-87e6-4837a2a68711" /> </br>
 
 
 #### ${\textsf{\color{#ff0400}userboxes, and hawkmoth graphic by me}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
@@ -63,11 +64,11 @@
 <br> <img width="410" height="145" alt="image" src="https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f" />
 <img width="430" height="140" alt="image" src="https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00" /> </br>
 
-<br> <img width="400" height="40" alt="tumblr_959a5239813b7e1e69e12ae862a88a1c_1bf0bd17_400" src="https://github.com/user-attachments/assets/e30d4f2d-8d66-4496-b457-f081f3a41981" /> </br>
+<br> <img width="400" height="40" alt="tumblr_0a415a5bfccce8a62218eb970e8f184d_f6a314e4_540-ezgif com-crop" src="https://github.com/user-attachments/assets/a2c176f2-7402-4bee-86e1-0f6df2704db1" /> </br>
 
-![heels-ezgif com-resize](https://github.com/user-attachments/assets/42bb2195-108d-4da5-8faf-1532aaca9d15)
+<img width="399" height="129" alt="project-hail-mary-ryland-grace-ezgif com-crop (2)" src="https://github.com/user-attachments/assets/7fe9dccb-1499-447c-8d64-e6bdd79a704a" />
 
-<img width="400" height="40" alt="tumblr_55e804b719ef63b6a6a9eed7a337168d_138bec3a_400" src="https://github.com/user-attachments/assets/8b2471cb-7a27-4adc-a5e3-fcd18782b294" />
+<br> <img width="400" height="40" alt="tumblr_de388d43dee3c9775af5b40bd5903988_bcc88de5_540-ezgif com-crop" src="https://github.com/user-attachments/assets/2ebf2465-2c90-4e7c-a0ea-0e124cd96296" /> </br>
 
 
 ![hawkmoth graphic](https://github.com/user-attachments/assets/335f4480-2b39-4738-ac68-c70360018e3a)
