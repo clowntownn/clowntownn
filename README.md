@@ -33,7 +33,7 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#4b0a7a}Things I like}}$ ღ </summary> "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#be62b8}garten of banban}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> <code>pokemon[mimikyu]</code> <br> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#ffffff}cult of the lamb}}$ 🐑🐏ㅤ<br>  <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> ${\textsf{\color{#93dbe6}sally face}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> <code>undertale</code> <br> ${\textsf{\color{#fc0349}valentine [hazbin hotel]}}$ 🖤 <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> <code>rick and morty</code> <br> </details>
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#400669}Stances}}$ ღ </summary> <a href="https://transid.org/books/stances/page/radqueer">Radqueer</a> <ins><strong><s>||</s></strong></ins> <i><code>Anti-Harrassment</code></i>  <br> <strong>No contact for harmful paras aswell as <code>pro-recovery</code> for them</strong>ㅤ<br> <i>I have no stance on transid, I dont care if your transharmful, I simply dont want to hear about it.</i> <br> <i>${\textsf{\color{#9e54e8}I do not claim the}}$ <a href="https://transid.org/books/stances/page/xenosatanism">xenosatanists</a> ${\textsf{\color{#9e54e8}as part of it nor do i support them}}$</i> <br> </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#400669}Stances}}$ ღ </summary> <a href="https://lgbtqia.wiki/wiki/Inclusionist">Indifferent Inclusionist</a> <ins><strong><s>||</s></strong></ins> <i><code>Anti-Harrassment</code></i>  <br> <strong>No contact for harmful paras aswell as <code>pro-recovery</code> for them</strong>ㅤ<br> <i>I really dont give a damn about transids. Its not my problem so dont bother me about it</i> <br> <i>${\textsf{\color{#9e54e8}I do not claim the}}$ <a href="https://transid.org/books/stances/page/xenosatanism">xenosatanists</a> ${\textsf{\color{#9e54e8}as part of my beliefs nor do i support them}}$</i> <br> </details>
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#360459}Education / My Sites}}$ ღ </summary> <a href="https://thesinsofyourfleshmayburnyou.carrd.co"><i>carrd</i></a> <img src="https://i.ibb.co/x8q6tM5w/hobby-scissors.gif" alt="hobby-scissors" border="0"> <a href="https://rentry.co/AMERlCANlDlOT"><i>rentry</i></a> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a> <a href="https://taste-of-flesh.straw.page"><i>strawpage</i></a> <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0"> <a href="https://cannibalisticmindset.atabook.org"><i>atabook</i></a> <br> <a href="https://proshipresourcesaccessible.carrd.co/#"><strong><code>Proship Info</code></strong></a> <ins><strong><s>///</s></strong></ins> <a href="https://define-proship.carrd.co/"><strong><code>Proship Info 2</code></strong></a> <br> <a href="https://powertotheplurals.com/origin-of-endogenic-and-traumagenic-system-terminology-guest-post-by-the-trashcan-collective/"><strong><code>Endo Info</code></strong></a> <ins><strong><s>///</s></strong></ins> <a href="https://endoresource.carrd.co/"><strong><code>Endo Info 2</code></strong></a> <br> <a href="https://www.psychiatry.org/File%20Library/Psychiatrists/Practice/DSM/APA_DSM-5-Paraphilic-Disorders.pdf"><strong><code>Para Info</code></strong></a> <br> </details>
@@ -90,7 +90,8 @@
 <img width="90" height="70" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
 
 <img width="90" height="70" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
-<img width="90" height="70" alt="radqueer" src="https://github.com/user-attachments/assets/1f06e7e9-29d8-467d-b321-5655d0fbbc0c" />
+<img width="90" height="70" alt="Indifferentinclus" src="https://github.com/user-attachments/assets/2959ffc6-9968-4add-912f-ca2efca9ea70" />
+
 
 
 
@@ -112,7 +113,7 @@
 
 **◝(¬_¬")◜** <sub>**9.** [`Hybristophilia`](https://dictionary.apa.org/hybristophilia) `is attraction to` `criminals` ~~`murderers`~~ <sub> <a href="https://ibb.co/21Y2MRTS"><img src="https://i.ibb.co/9k3X4B7h/tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75.webp" alt="tumblr-2315b3a21341194420da384396b66272-7da6b2fc-75" border="0"></a>
 
-**ฅ^-⩊-^ฅ** <sub>**10.** [`Radqueer`](https://transid.org/books/stances/page/radqueer) `is is quite litterally being unconditionally supportive of all identities, even the problimatic ones!` <sub> <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/4e7dd7be-0508-4836-b901-9726bb3a7918" />
+**ฅ^-⩊-^ฅ** <sub>**10.** [`Indifferent Inclusionist`](https://lgbtqia.wiki/wiki/Inclusionist) `meaning i could not give less of a shit what you identify with. Its not my problem` <sub> <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/4e7dd7be-0508-4836-b901-9726bb3a7918" />
 
 </details>
 
