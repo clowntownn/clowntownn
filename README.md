@@ -59,13 +59,9 @@
 <br> <img width="400" height="40" alt="tumblr_203f9d1cd174538f28a0285d090d9145_4c365c55_400-ezgif com-crop" src="https://github.com/user-attachments/assets/13e0a20b-7de3-4b59-87e6-4837a2a68711" /> </br>
 
 
-#### ${\textsf{\color{#ff0400}userboxes by me}}$ ${\textsf{\color{#ff4340}:3 free to use [link git to credit]}}$ <img src="https://i.ibb.co/SDzRJr33/soda.png" alt="soda" border="0">
-
-<img width="600" height="150" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" />
+<br> <img width="400" height="248" alt="tumblr_2ff6aca68e999282cb6b3b09f5845956_87dd18b3_400" src="https://github.com/user-attachments/assets/28d4fcd0-7bca-4fce-a3cb-ec28947f6672" /> </br>
 
 
-<br> <img width="410" height="135" alt="image" src="https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f" />
-<img width="430" height="132" alt="image" src="https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00" /> </br>
 
 <br> <img width="400" height="40" alt="tumblr_0a415a5bfccce8a62218eb970e8f184d_f6a314e4_540-ezgif com-crop" src="https://github.com/user-attachments/assets/a2c176f2-7402-4bee-86e1-0f6df2704db1" /> </br>
 
@@ -563,15 +559,21 @@
 
 > <img src="https://i.ibb.co/NdBbSx0T/scene2.gif" alt="scene2" border="0">
 
-### First ***6*** userboxes below by me FTU wth CREDIT {lnk git}
+### First ***9*** userboxes below by me FTU wth CREDIT {lnk git}
 
 <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/11ec8045-e36e-45fd-8c62-ecf1f1730616" />
 <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/fe9af073-83f9-423f-876c-6ce39828cfe5" />
 <img width="405" height="87" alt="image" src="https://github.com/user-attachments/assets/70c5e3da-2a36-4718-b6e3-8acee929495f" />
 <img width="405" height="86" alt="image" src="https://github.com/user-attachments/assets/98017116-3ba0-4e4c-af35-d2bd5beed7db" />
 
+<img width="600" height="150" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" />
+
+
+
 ![userbox11](https://github.com/user-attachments/assets/d509c622-cda2-4be5-8c6c-0ed525ae8911)
 
+<img width="410" height="135" alt="image" src="https://github.com/user-attachments/assets/e6bcaa87-145d-4429-98b7-d4a438b3134f" />
+<img width="430" height="132" alt="image" src="https://github.com/user-attachments/assets/bc52898c-b8aa-4388-b651-6dfacf2dfa00" />
 
 <img width="350" height="133" alt="tumblr_47a1f639e4c2757dddb8abe05668392d_5d5db79" src="https://github.com/user-attachments/assets/f348d041-e277-4d71-846a-3204d3e316c9" />
 <img width="350" height="133" alt="tumblr_eeccaa12f11471100b61b4d125da6436_988d4757_400" src="https://github.com/user-attachments/assets/c4c65570-2941-4af5-a410-c776f2958463" />
