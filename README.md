@@ -26,7 +26,7 @@
 
 ![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)![purple-neon](https://github.com/user-attachments/assets/5a0035b9-8564-433d-b5cf-26874378a883)
 
-" Call us ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** Grace <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀
+" Call us ${\textsf{\color{#3bdacb}Sal/Sally}}$ <a href="https://ibb.co/396YFVLH"><img src="https://i.ibb.co/hJQ1drtv/salmask1.png" alt="salmask1" border="0"></a> **`///`** Grace <img src="https://i.ibb.co/SwKWMG80/phone.gif" alt="phone" border="0"> **`///`** ${\textsf{\color{#ffffff}Lamb}}$ or ${\text{\color{#615c4c}Rat}}$ 🐑🐀 ![](https://komarev.com/ghpvc/?username=ryangoslingmoney&color=000000&style=flat-flat&label=the+local+homeless+population&abbreviated=true)
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#61109c}About me}}$ ღ </summary> <a href="https://pluralpedia.org/w/Traumagenic"><code>Traumagenic</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Atrium_System"><code>Atrium</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Kingenic"><code>Kingenic</code></a> <i>system of 200+ alters!!</i> <br><strong>Yes ik an endo AND trauma origin?! Don't believe me? Go ahead and ask. I'll dump ALL my trauma :)</strong> <br> <i>20+ with a child! Ive also been in regis since 2018/2016! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0"></i>ㅤ<br> <strong><code>BPD/NPD/<a href="https://my.clevelandclinic.org/health/diseases/9743-histrionic-personality-disorder">HPD</a>/ADHD</code></strong> <ins><strong><s>||</s></strong></ins> <code>Dyslexia/Autism/Schizophrenia</code> <br> <strong><code><a href="https://en.wikipedia.org/wiki/Periodic_paralysis">Periodic paralasys</a><strong>/</strong><a href="https://www.ucsfhealth.org/conditions/mild-cognitive-impairment">MCI</a></strong></code> <br> <strong><i>${\textsf{\color{#FFFF00}ALL}}$</i></strong>${\textsf{\color{#FFFF00}stated medical alliments have been}}$<i><strong>${\textsf{\color{#FFFF00}professionally diagnosed}}$</strong></i><br> </details>
@@ -58,10 +58,11 @@
 
 <br> <img width="400" height="40" alt="tumblr_203f9d1cd174538f28a0285d090d9145_4c365c55_400-ezgif com-crop" src="https://github.com/user-attachments/assets/13e0a20b-7de3-4b59-87e6-4837a2a68711" /> </br>
 
+<br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=800&size=13&duration=4000&pause=1000&color=FA881E&width=320&height=33&lines=%22Words+of+encouragement.%22;%22You+can't+just+say+%22words+of+encouragement!%22%22;%22Words+of+GREAT+encouragement!%22" alt="Typing SVG" /></a> </br>
 
 <br> <img width="400" height="248" alt="tumblr_2ff6aca68e999282cb6b3b09f5845956_87dd18b3_400" src="https://github.com/user-attachments/assets/28d4fcd0-7bca-4fce-a3cb-ec28947f6672" /> </br>
 
-
+<br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=800&size=13&duration=4000&pause=1000&color=FA881E&width=320&height=33&lines=%22Who+is+grace+talking+to%2C+question%3F%22" alt="Typing SVG" /></a> </br>
 
 <br> <img width="400" height="40" alt="tumblr_0a415a5bfccce8a62218eb970e8f184d_f6a314e4_540-ezgif com-crop" src="https://github.com/user-attachments/assets/a2c176f2-7402-4bee-86e1-0f6df2704db1" /> </br>
 
