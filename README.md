@@ -58,7 +58,7 @@
 
 <br> <img width="400" height="40" alt="tumblr_203f9d1cd174538f28a0285d090d9145_4c365c55_400-ezgif com-crop" src="https://github.com/user-attachments/assets/13e0a20b-7de3-4b59-87e6-4837a2a68711" /> </br>
 
-<br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=800&size=13&duration=4000&pause=1000&color=FA881E&width=320&height=33&lines=%22Words+of+encouragement.%22;%22You+can't+just+say+%22words+of+encouragement!%22%22;%22Words+of+GREAT+encouragement!%22" alt="Typing SVG" /></a> </br>
+<br> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Orbitron&weight=800&size=13&duration=4000&pause=1000&color=FA881E&width=339&height=33&lines=%22Words+of+encouragement.%22;%22You+can't+just+say+%22words+of+encouragement!%22;%22Words+of+GREAT+encouragement!%22" alt="Typing SVG" /></a> </br>
 
 <br> <img width="400" height="248" alt="tumblr_2ff6aca68e999282cb6b3b09f5845956_87dd18b3_400" src="https://github.com/user-attachments/assets/28d4fcd0-7bca-4fce-a3cb-ec28947f6672" /> </br>
 
