@@ -566,10 +566,11 @@ drawn by: [prince/mars](https://github.com/ph1lz4)
 
 > <img src="https://i.ibb.co/NdBbSx0T/scene2.gif" alt="scene2" border="0">
 
-### First ***10*** userboxes below by me FTU wth CREDIT {lnk git}
+### First ***11*** userboxes below by me FTU wth CREDIT {lnk git}
 
 <br><img width="405" height="86" alt="tumblr_b7b82c1305d42833790000c55f045bf8_db5bfb8" src="https://github.com/user-attachments/assets/3e1d8f3d-996d-42ca-b59f-75e65e6562f3" /></br>
 
+<img width="405" height="86" alt="BA5EBCF0-FD6C-41A8-8910-D8FA2E33933A" src="https://github.com/user-attachments/assets/dbbc7c04-69dd-4929-8e3e-cca68fa6b3ed" />
 <br><img width="405" height="86" alt="C97C7B51-2902-437B-ACD9-A0EC8AD647CD (1)" src="https://github.com/user-attachments/assets/5a945e75-e271-49ed-a964-c9ea3c499f0e" />
 <img width="405" height="86" alt="486D0F4B-D795-467E-AECC-525A9F4FA0AF" src="https://github.com/user-attachments/assets/e561c6bb-2e18-4416-a4d4-21342cbf920a" /></br>
 
