@@ -127,6 +127,11 @@
 ![nyan-cat-ezgif com-resize (1)](https://github.com/user-attachments/assets/1033617f-9473-4b69-ae60-46e99c158b41)
 
 
+MY BABIESSS
+drawn by: [prince/mars](https://github.com/ph1lz4)
+<br><img width="362" height="343" alt="Screenshot 2026-05-28 000652" src="https://github.com/user-attachments/assets/a6de0d82-04bf-49b7-beb8-44f5a9ce2eaf" /></br>
+
+
 <img width="341" height="253" alt="Screenshot 2026-05-24 214027" src="https://github.com/user-attachments/assets/0ecdb82c-d130-4ce5-903e-87a709b1abfb" />
 <img width="160" height="251" alt="image" src="https://github.com/user-attachments/assets/dfc7dee1-b78b-4884-baf6-81bd8d40bfb0" />
 <img width="201" height="153" alt="Screenshot 2026-01-11 12 35 43 PM" src="https://github.com/user-attachments/assets/840852b1-8755-4484-937e-aee4c2d86a10" />
