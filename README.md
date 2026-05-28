@@ -54,7 +54,7 @@
 
 <br> <img width="400" height="40" alt="tumblr_b1e17db0c2fabc65768972ab36b0618d_e24f1fb9_400-ezgif com-crop" src="https://github.com/user-attachments/assets/d849e6eb-5762-4290-b01c-4663a337ad4c" /> </br>
 
-<img width="399" height="129" alt="ezgif com-crop" src="https://github.com/user-attachments/assets/6864b73e-36b0-45a9-90b7-bdc9835d3df0" />
+<img width="399" height="129" alt="tumblr_0c913e5b2cc5ddbeabee149a33526052_4ea62a32_540-ezgif com-added-text (1)" src="https://github.com/user-attachments/assets/d29264b2-4c3d-4cb9-89dd-a9dc33e5376e" />
 
 <br> <img width="400" height="40" alt="tumblr_203f9d1cd174538f28a0285d090d9145_4c365c55_400-ezgif com-crop" src="https://github.com/user-attachments/assets/13e0a20b-7de3-4b59-87e6-4837a2a68711" /> </br>
 
