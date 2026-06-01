@@ -550,6 +550,10 @@ drawn by: [prince/mars](https://github.com/ph1lz4)
 
 ![hawkmoth graphic](https://github.com/user-attachments/assets/335f4480-2b39-4738-ac68-c70360018e3a)
 
+## <p align="center"> this thing made for me by [prince/mars](https://github.com/ph1lz4) </p>
+
+<img width="500" height="500" alt="picmix com_13778576" src="https://github.com/user-attachments/assets/be4052e0-5552-4495-ade7-20a6ec1f2ef5" />
+
 > <img src="https://i.ibb.co/NdBbSx0T/scene2.gif" alt="scene2" border="0">
 
 
