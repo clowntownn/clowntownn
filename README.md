@@ -32,10 +32,10 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#61109c}About me}}$ ღ </summary> <a href="https://pluralpedia.org/w/Traumagenic"><code>Traumagenic</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Atrium_System"><code>Atrium</code></a> <strong>/</strong> <a href="https://pluralpedia.org/w/Kingenic"><code>Kingenic</code></a> <i>system of 200+ alters!!</i> <br><strong>Yes ik an endo AND trauma origin?! Don't believe me? Go ahead and ask. I'll dump ALL my trauma :)</strong> <br> <i>20+ with a child! Ive also been in regis since 2018/2016! <img src="https://i.ibb.co/hJJdFGRb/blood2.gif" alt="blood2" border="0"></i>ㅤ<br> <strong><code>BPD/NPD/<a href="https://my.clevelandclinic.org/health/diseases/9743-histrionic-personality-disorder">HPD</a>/ADHD</code></strong> <ins><strong><s>||</s></strong></ins> <code>Dyslexia/Autism/Schizophrenia</code> <br> <strong><code><a href="https://en.wikipedia.org/wiki/Periodic_paralysis">Periodic paralasys</a><strong>/</strong><a href="https://www.ucsfhealth.org/conditions/mild-cognitive-impairment">MCI</a></strong></code> <br> <strong><i>${\textsf{\color{#FFFF00}ALL}}$</i></strong>${\textsf{\color{#FFFF00}stated medical alliments have been}}$<i><strong>${\textsf{\color{#FFFF00}professionally diagnosed}}$</strong></i><br> </details>
 
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#580b8f}Collective Yumes}}$ ღ </summary> ${\textsf{\color{#4dff00}Rick Sanchez}}$ <strong>/</strong> <ins><code>Morty Smith</code></ins> <strong>/</strong> ${\textsf{\color{#8f1106}Narinder}}$ <strong>/</strong> <ins><code>P.T. Barnum</code></ins> <strong>/</strong> ${\textsf{\color{#852799}Hugh}}$ ${\textsf{\color{#ff2e13}Morris}}$ <br> ${\textsf{\color{#0cb323}Jacksepticeye}}$ <strong>/</strong> ${\textsf{\color{#ff00b3}Markiplier}}$ <strong>/</strong> <ins><code>Tenna</code></ins> <strong>/</strong> ${\textsf{\color{#e6e6e6}Sans}}$ <br> ${\textsf{\color{#46b7c2}Sal Fisher}}$ <strong>/</strong> ${\textsf{\color{#734927}Larry Johnson}}$ <strong>/</strong> ${\textsf{\color{#7854b6}Hawkmoth}}$ <br> ${\textsf{\color{#d91e1e}Alastor}}$ <strong>/</strong> ${\textsf{\color{#d91e44}Val}}$ <strong>/</strong> <ins><code>Stolas</code></ins> <strong>/</strong> ${\textsf{\color{#ff5c7c}Angel Dust}}$ <br> </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#580b8f}Collective Yumes/Kins}}$ ღ </summary> ${\textsf{\color{#4dff00}Rick Sanchez}}$ <strong>/</strong> <ins><code>Morty Smith</code></ins> <strong>/</strong> ${\textsf{\color{#8f1106}Narinder}}$ <strong>/</strong> <ins><code>P.T. Barnum</code></ins> <strong>/</strong> ${\textsf{\color{#852799}Hugh}}$ ${\textsf{\color{#ff2e13}Morris}}$ <br> ${\textsf{\color{#0cb323}Jacksepticeye}}$ <strong>/</strong> ${\textsf{\color{#ff00b3}Markiplier}}$ <strong>/</strong> <ins><code>Tenna</code></ins> <strong>/</strong> ${\textsf{\color{#e6e6e6}Sans}}$ <br> ${\textsf{\color{#46b7c2}Sal Fisher}}$ <strong>/</strong> ${\textsf{\color{#734927}Larry Johnson}}$ <strong>/</strong> ${\textsf{\color{#7854b6}Hawkmoth}}$ <br> ${\textsf{\color{#d91e1e}Alastor}}$ <strong>/</strong> ${\textsf{\color{#d91e44}Val}}$ <strong>/</strong> <ins><code>Stolas</code></ins> <strong>/</strong> ${\textsf{\color{#ff5c7c}Angel Dust}}$ <strong>/</strong> ${\textsf{\color{#7400CA}Donnie}}$ <br> </details>
     
 <p align="left"> <details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#4b0a7a}Things I like}}$ ღ </summary> "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#6980c2}project hail mary}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> <code>pokemon</code> <br> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#ffffff}cult of the lamb}}$ 🐑🐏ㅤ<br>  <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> ${\textsf{\color{#93dbe6}sally face}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> <code>undertale</code> <br> ${\textsf{\color{#fc0349}hazbin hotel/helluva boss}}$ 🖤 <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> <code>rick and morty</code> <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#2fb30e}DC universe}}$ <img width="30" height="30" alt="pngegg (1)" src="https://github.com/user-attachments/assets/7555accf-d551-468f-9f42-122c16bc285c" /> <br> </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#4b0a7a}Things I like}}$ ღ </summary> "<img src="https://i.ibb.co/KpBZZPcy/guitar2.gif" alt="guitar2" border="0"> ${\textsf{\color{#6980c2}project hail mary}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/3mP8HbWP/games-pkm3.gif" alt="games-pkm3" border="0"> <code>pokemon</code> <br> <a href="https://ibb.co/xSf4C04Z"><img src="https://i.ibb.co/C5Mr1ZrL/weapon-gun2.gif" alt="weapon-gun2" border="0"></a> ${\textsf{\color{#890606}cowbow bebop}}$ <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#ffffff}cult of the lamb}}$ 🐑🐏ㅤ<br>  <a href="hs://ibb.co/C51SMmh2"><img src="https://i.ibb.co/hR7TZLDf/salguitar.png" alt="salguitar" border="0"></a> ${\textsf{\color{#93dbe6}sally face}}$ <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/hFtypvLD/emo.gif" alt="emo" border="0"> <code>undertale</code> <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#7400CA}ROTTMNT}}$ <img width="30" height="30" alt="tumblr_6aff7ec92b46a5329ba27c2634228158_b3f30ed4_400" src="https://github.com/user-attachments/assets/ef0ad48a-a263-4c78-bc87-2420472639b1" /> <br> ${\textsf{\color{#fc0349}hazbin hotel/helluva boss}}$ 🖤 <ins><strong><s>||</s></strong></ins> <img src="https://i.ibb.co/CK4q9Gtp/search-computer-0004.gif" alt="search-computer-0004" border="0"> <code>rick and morty</code> <ins><strong><s>||</s></strong></ins> ${\textsf{\color{#2fb30e}DC universe}}$ <img width="30" height="30" alt="pngegg (1)" src="https://github.com/user-attachments/assets/7555accf-d551-468f-9f42-122c16bc285c" /> <br> </details>
 
 <p align="left"> <details align="left">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#400669}Stances}}$ ღ </summary> <a href="https://lgbtqia.wiki/wiki/Inclusionist">Indifferent Inclusionist</a> <ins><strong><s>||</s></strong></ins> <i><code>Anti-Harrassment</code></i> <ins><strong><s>||</s></strong></ins> <i><code>Anti-Censorship</code></i> <br> <strong>No contact for harmful paras aswell as <code>pro-recovery</code> for them</strong>ㅤ<br> <i>I really dont give a damn about transids. Its not my problem so dont bother me about it</i> <br> <i>${\textsf{\color{#9e54e8}I do not claim the}}$ <a href="https://transid.org/books/stances/page/xenosatanism">xenosatanists</a> ${\textsf{\color{#9e54e8}as part of my beliefs nor do i support them}}$</i> <br> </details>
@@ -78,22 +78,23 @@
 <details>
     <summary>${\textsf{\color{#46b7c2}✤ ‧ —– • Flags • —– ٠ ✤ }}$</summary> 
 
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/8799d494-0ded-4342-8ec5-acac415eccb1" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/57e2f57a-9532-4dbd-a578-c2dec3a3d13e" /> 
  
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/ce0e22e3-1a73-4444-9ca6-c0a59a7b5fc9" />  
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/ce0e22e3-1a73-4444-9ca6-c0a59a7b5fc9" />  
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
  
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
 
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
 
-<img width="70" height="50" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
-<img width="70" height="50" alt="Indifferentinclus" src="https://github.com/user-attachments/assets/2959ffc6-9968-4add-912f-ca2efca9ea70" />
+<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/fad440f0-0c39-40bc-b773-2df7f207f2c6" />
+<img width="60" height="40" alt="Indifferentinclus" src="https://github.com/user-attachments/assets/2959ffc6-9968-4add-912f-ca2efca9ea70" />
 
-<img width="70" height="50" alt="image04" src="https://github.com/user-attachments/assets/089dff40-76d6-4b20-8e03-80b3440d3184" />
+<img width="60" height="40" alt="image04" src="https://github.com/user-attachments/assets/089dff40-76d6-4b20-8e03-80b3440d3184" />
+<img width="60" height="40" alt="Fictigender_flag" src="https://github.com/user-attachments/assets/0a1bcb2b-e533-43cd-a7bf-453f3c3322bd" />
 
 
 
@@ -119,6 +120,8 @@
 **ฅ^-⩊-^ฅ** <sub>**10.** [`Indifferent Inclusionist`](https://lgbtqia.wiki/wiki/Inclusionist) `meaning i could not give less of a shit what you identify with. Its not my problem` <sub> <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/4e7dd7be-0508-4836-b901-9726bb3a7918" />
 
 **▄︻デ══━一💥** <sub>**11.** [`Objectum`](https://objectuminfo.carrd.co/) `the attraction (of any kind) to inanimate objects.` <sub> <img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/4e7dd7be-0508-4836-b901-9726bb3a7918" />
+
+𐔌՞ ܸ.ˬ.ܸ՞3 <sub>**11.** [`Fictogender`](https://lgbtqia.wiki/wiki/Fictigender) `when one's gender is connected to or based on a work of fiction, a fictional character(s), a fictional species, or an object, setting, or concept from a work of fiction.` <sub> <img width="16" height="16" alt="tumblr_ac34f31218a3dfa8133575e98dde5d19_a2022184_250" src="https://github.com/user-attachments/assets/344f7f58-ee7a-4bd3-95ed-cc41046240d8" />
 
 </details>
 
