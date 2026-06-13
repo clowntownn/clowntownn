@@ -85,7 +85,7 @@
 <img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/743b3151-4ce9-46f9-b77d-b7069534770c" /> 
  
 <img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/a8582c3c-896d-467e-8de1-4386aa538ac3" /> 
-<img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/3c0fbc7c-3a8c-4944-8e6b-9a9f81ae8656" />
+<img width="60" height="40" alt="tumblr_ntwegnrx5J1ttq5l9o1_1280" src="https://github.com/user-attachments/assets/a6e497f7-d518-4a88-8a20-f41121118c72" />
 
 <img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/5f9e5d4d-8e2f-4a58-87ae-d6e8af522799" />
 <img width="60" height="40" alt="image" src="https://github.com/user-attachments/assets/8908fe79-ed00-4a7d-8395-66d571443279" />
@@ -109,7 +109,7 @@
 
 **✾(〜 ☌ω☌)〜✾** <sub>**5.** [`Upisexual`](https://lgbtqia.wiki/wiki/Upisexual) `is an attraction to vampires`<sub> <a href="https://ibb.co/dnw0wjZ"><img src="https://i.ibb.co/FGLbLmp/cross7.gif" alt="cross7" border="0"></a>
 
-**(≧ω≦)/** <sub>**6.** ~~`Cannibal`~~ `Flag for people attracted to` ~~`eating people/partners`~~ <sub> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a>
+**(≧ω≦)/** <sub>**6.** `Schizogender when your gender being a boy is affected by your schizophrenia` <sub> <a href="https://ibb.co/kVpc50W9"><img src="https://i.ibb.co/bjxdQL82/tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75.webp" alt="tumblr-6183edbd22a281c63b60f816feaee9a1-643a73f1-75" border="0"></a>
 
 **(๑'^'๑)︻デ═一** <sub>**7.** [`Autonecrophilia`](https://dictionary.apa.org/autonecrophilia) `is attraction to someone else having sex with oneself as a` ~~`dead`~~ `body`<sub> <a href="https://ibb.co/0VJVYQFF"><img src="https://i.ibb.co/vvzvLDQQ/tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75.webp" alt="tumblr-0d13c3195e9d46a9e99bf21069cde6e1-3e0b9830-75" border="0"></a>
 
